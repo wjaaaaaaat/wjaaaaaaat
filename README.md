@@ -2,7 +2,7 @@
 
 🏳️‍⚧️ Pronouns: they/them
 
-🖱️ Current activity: CTF @ pbchocolate, CyberPariot @ 17-4332, and robotics @ 5389D
+🖱️ Current activity: CTF @ pbchocolate, CyberPariot, and robotics
 
 🤨 Interests: CS + math (❤️🫀crypto🫀❤️)
 
